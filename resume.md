@@ -4,6 +4,8 @@
 
 ## Education
 - BSc. Geophysical Engineering, Colorado School of Mines (2027)
+    - [Grewcock Presidential Scholar](https://www.mines.edu/grewcockscholars/)
+    - [Cross Country / Track and Field](https://minesathletics.com/sports/cross-country)
 - High School Diploma, John H. Glenn High School (2023)
 
 ## Relevant Coursework
