@@ -17,3 +17,11 @@
 ### Fall 2024
 - **GPGN 228**: Introduction to Geophysics
 - **GEGN 212**: The Rock Cycle
+
+## Experience
+### Lifeguard, Trident Recreation - Long Island, NY
+- June 2024 - August 2024
+### Soccer Trainer, Long Island Goalkeeper Training - Smithtown, NY
+- September 2019 - June 2022
+### Summer Camp Counselor, Elwood Athletic Club - East Northport, NY
+- June 2021 - August 2021
