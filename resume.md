@@ -1,6 +1,7 @@
 # Emily LaMena
 - Email: emilylamena@mines.edu
 - Location: Golden, CO
+- [LinkedIn: www.linkedin.com/in/emily-lamena](www.linkedin.com/in/emily-lamena)
 - ![Image](https://www.mines.edu/grewcockscholars/wp-content/uploads/sites/344/2023/08/Emily-LaMena.jpg)
 ## Education
 - BSc. Geophysical Engineering, Colorado School of Mines (2027)
